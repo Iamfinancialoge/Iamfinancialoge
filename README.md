@@ -12,3 +12,4 @@
 
 .I am looking for opportunities to collaborate on data projects, virtual assistance tasks, and advocacy work, especially in business, healthcare, and development
 
+🍭 Connect with me on Linkedln)]
