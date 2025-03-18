@@ -10,6 +10,6 @@
 
 .✅ I am building my expertise in data analysis and am currently skilled in Microsoft Excel and PostgreSQL for working with and organizing data.
 
-.I am looking for opportunities to collaborate on data projects, virtual assistance tasks, and advocacy work, especially in business, healthcare, and development
+.I am looking for opportunities to collaborate on data projects and virtual assistance CSR tasks, especially in business, healthcare, and development
 
 🍭 Connect with me on Linkedln)]
